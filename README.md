@@ -1,5 +1,5 @@
 - 👋 Eu João gabriel
 - 👀 eu me interesso em engenharia civil
 - 🌱 eu estou apreendendo projetos de plantas de casas
-- 💞️ eu amo comer mae de amigos
+- 💞️ eu amo comer chocolate
 - 📫 eu moro em ponta grossa ...
